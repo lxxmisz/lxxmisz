@@ -4,8 +4,10 @@
   $\text{\color{#e8c83d}"SONG OF MY SOUL, MY VOICE IS DEAD}$\
   $\text{\color{#e8c83d}DIE THOU UNSUNG, AS TEARS UNSHED}$\
   $\text{\color{#e8c83d}SHALL DRY AND DIE IN LOST CARCOSA."}$
-  
-  <img width="184" height="251" alt="yellowsign" src="https://github.com/user-attachments/assets/8bff723f-924c-4229-b4c7-08758a76d177"/>\
+
+
+<img src="https://file.garden/adJ3ti2aS3ylDI79/yellowsgn.png" height=200>
+
   $\text{\color{#e8c83d}King or Loomis. 20, he/him genderfluid}$\
   $\text{\color{#e8c83d}Feel free to c+h}$
 
