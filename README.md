@@ -14,7 +14,7 @@
   $\text{\color{#e8c83d}Feel free to c+h}$
   
   $\text{\color{#e8c83d}Optional, but feel free to use royal honorifics on me,}$\
-  $\text{\color{#e8c83d}I love being referred to as His Majesty or His Highness. <3}$
+  $\text{\color{#e8c83d}I love being referred to as His Majesty or His Highness. ♡}$
 
   
 [rentry](https://rentry.co/lxxmiszptinfo) - [carrd](https://lxxmisz.carrd.co/) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmiszcomms.carrd.co/)
