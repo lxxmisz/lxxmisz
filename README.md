@@ -10,8 +10,8 @@
 
 <img src="https://file.garden/adJ3ti2aS3ylDI79/yellowsgn.png" height=200>
 
-  $\text{\color{#e8c83d}King or Loomis. 20, he/him genderfluid}$\
-  $\text{\color{#e8c83d}DID system. Feel free to c+h}$
+  $\text{\color{#e8c83d}King or Loomis. 20, he/him genderfluid. DID system}$\
+  $\text{\color{#e8c83d}Feel free to c+h}$
   
   $\text{\color{#e8c83d}Optional, but feel free to use royal honorifics on me,}$\
   $\text{\color{#e8c83d}I love being referred to as His Majesty or His Highness. ♡}$
