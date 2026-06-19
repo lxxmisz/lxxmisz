@@ -3,7 +3,9 @@
 
 <b>
 <img src="https://pixelsafari.neocities.org/dividers/music/blue.gif" height=400>
-</b>b>
+
+
+</b>
     
   $\text{\color{#7e93ff}"DOWN ANOTHER, CAN I MAKE IT?}$\
   $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?"}$
