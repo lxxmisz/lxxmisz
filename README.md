@@ -4,6 +4,7 @@
 <img src="https://pixelsafari.neocities.org/dividers/music/blue.gif" height=400>
 
 
+
   
   $\text{\color{#7e93ff}"DOWN ANOTHER, CAN I MAKE IT?}$\
   $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?"}$
@@ -13,7 +14,7 @@
 
   $\text{\color{#7e93ff}Andrew Loomis. 20, he/him genderfluid. DID system}$\
   $\text{\color{#7e93ff}Usually sitting wherever my man is,}$\
-  $\text{\color{#7e93ff}Feel free to c+h if I'm alone though}$
+  $\text{\color{#7e93ff}feel free to c+h if I'm alone though}$
   
 
   
