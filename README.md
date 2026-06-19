@@ -4,9 +4,7 @@
 <img src="https://neckdoll.zombie.jp/material/flame/anq-rose/b/frame-aroseb-top.gif" height=300>
   
   $\text{\color{#7e93ff}"DOWN ANOTHER, CAN I MAKE IT?}$\
-  $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?}$\
-  $\text{\color{#7e93ff}ALL YOUR PC FILES, JUST ERASE IT}$\
-  $\text{\color{#7e93ff}GOTTA GET GOING, FUCK THAT LAME SHIT!"}$
+  $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?"}$
 
 
 <img src="https://file.garden/adJ3ti2aS3ylDI79/pavlovpurpl.png">
