@@ -9,7 +9,7 @@
   $\text{\color{#7e93ff}GOTTA GET GOING, FUCK THAT LAME SHIT!"}$
 
 
-<img src="https://file.garden/adJ3ti2aS3ylDI79/pavlovpurpl.png" height=200>
+<img src="https://file.garden/adJ3ti2aS3ylDI79/pavlovpurpl.png">
 
   $\text{\color{#7e93ff}Andrew Loomis. 20, he/him genderfluid. DID system}$\
   $\text{\color{#7e93ff}Usually sitting wherever my man is,}$\
