@@ -3,11 +3,13 @@
 <td>
 
 <div align="center">
-  <img src="https://pixelsafari.neocities.org/dividers/music/blue.gif" height=300>
   <p><b>
+  <img src="https://pixelsafari.neocities.org/dividers/music/blue.gif" height=300>
+  </b></p>
+  
   $\text{\color{#7e93ff}"DOWN ANOTHER, CAN I MAKE IT?}$\
   $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?"}$
-
+<p><b>
 <img align="center"
 src="https://file.garden/adJ3ti2aS3ylDI79/pavlovpurplAAAA.png" height=150">
 </b></p>
