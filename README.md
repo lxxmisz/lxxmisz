@@ -8,7 +8,7 @@
   $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?"}$
 
 
-<img src="https://file.garden/adJ3ti2aS3ylDI79/pavlovpurplAAAA.png" height=200>
+<img src="https://file.garden/adJ3ti2aS3ylDI79/pavlovpurplAAAA.png" height=150>
 
   $\text{\color{#7e93ff}Andrew Loomis. 20, he/him genderfluid. DID system}$\
   $\text{\color{#7e93ff}Usually sitting wherever my man is,}$\
