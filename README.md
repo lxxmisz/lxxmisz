@@ -1,11 +1,8 @@
 <p align="center">
   <div align="center">
+    
+<img src="https://pixelsafari.neocities.org/dividers/music/blue.gif" height=300>
 
-<b>
-<img src="https://pixelsafari.neocities.org/dividers/music/blue.gif" height=400>
-
-
-</b>
     
   $\text{\color{#7e93ff}"DOWN ANOTHER, CAN I MAKE IT?}$\
   $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?"}$
