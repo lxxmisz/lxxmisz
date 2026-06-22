@@ -11,10 +11,10 @@
   $\text{\color{#7e93ff}CAN I TRAVEL TO YOUR MIND AND JUST REPLACE IT?"}$
 <p><b>
 <img align="center"
-src="https://file.garden/adJ3ti2aS3ylDI79/pavlovpurplAAAA.png" height=150">
+src="https://file.garden/adJ3ti2aS3ylDI79/COBALT%20SPRITE%20FOR%20YOU.png" height=384">
 </b></p>
 
-$\text{\color{#7e93ff}Andrew Loomis. 20, he/him genderfluid. DID system}$\
+$\text{\color{#7e93ff}Cobalt or Loomis. 20, he/him genderfluid. DID system}$\
 $\text{\color{#7e93ff}Usually sitting wherever my man is, feel free to c+h if I'm alone though}$
 
   
