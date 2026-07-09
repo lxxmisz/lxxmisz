@@ -4,6 +4,7 @@
 
 <div align="center">
   <p><b>
+  <p><b>
   <img src="https://pixelsafari.neocities.org/dividers/rotatingstars.gif" height=300>
   </b></p>
   
