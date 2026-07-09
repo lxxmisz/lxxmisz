@@ -4,7 +4,7 @@
 
 <div align="center">
   <p><b>
-  <img src="https://dividers.crd.co/assets/images/gallery09/d55d7c96.gif?v=05d33f91" height=300>
+  <img src="https://pixelsafari.neocities.org/dividers/rotatingstars.gif" height=300>
   </b></p>
   
   $\text{\color{#e9967a}"GO ON, SILVER;}$\
