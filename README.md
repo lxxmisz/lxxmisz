@@ -16,7 +16,7 @@ src="https://file.garden/adJ3ti2aS3ylDI79/gold%20pokespepanel.png" height=100>
 </b></p>
 
 $\text{\color{#999999}Gold or Loomis. 20, he/him genderfluid. DID system}$\
-$\text{\color{#999999}Usually sitting wherever my lovely rival is! Feel free to c+h if I'm alone though}$
+$\text{\color{#999999}Usually sitting wherever my dear rival is! Feel free to c+h if I'm alone though}$
 
   
 [rentry](https://rentry.co/lxxmiszptinfo) - [carrd](https://lxxmisz.carrd.co/) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmiszcomms.carrd.co/)
