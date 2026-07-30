@@ -12,7 +12,7 @@
   $\text{\color{#e9967a}SHOW ME WHAT YOU'VE GOT!"}$
 <p><b>
 <img align="center"
-src="https://file.garden/adJ3ti2aS3ylDI79/goldsprite.png" height=384">
+src="https://file.garden/adJ3ti2aS3ylDI79/gold%20pokespepanel.png">
 </b></p>
 
 $\text{\color{#e9967a}Gold, Ethan or Loomis. 20, he/him genderfluid. DID system}$\
