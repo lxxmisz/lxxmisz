@@ -8,8 +8,8 @@
   <img src="https://decohoard.carrd.co/assets/images/gallery29/38a49f40.gif?v=e0827b7e" height=300>
   </b></p>
   
- "hope you rest nice...\
- eternally, sleep tight."
+ "Hope you rest nice...\
+ Eternally, sleep tight."
 <p></b>
 <img align="center"
 src="https://file.garden/adJ3ti2aS3ylDI79/frostkissesbanner.gif" height=100>
