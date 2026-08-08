@@ -17,8 +17,8 @@ src="https://file.garden/adJ3ti2aS3ylDI79/frostkissesbanner.gif" height=100>
 </p>
 
 Blake or Loomis. 20, he/him genderfluid. DID system\
-Usually sitting wherever my dear rival is! Feel free to\
-c+h if I'm alone though
+Usually sitting wherever my love is... Feel free to\
+c+h if I'm alone though...
 
   
 [rentry](https://rentry.co/lxxmiszptinfo) - [carrd](https://lxxmisz.carrd.co/) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmiszcomms.carrd.co/)
