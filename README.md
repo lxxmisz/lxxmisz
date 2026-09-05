@@ -5,25 +5,25 @@
 <div align="center">
   <p><b>
   <p><b>
-  <img src="https://decohoard.carrd.co/assets/images/gallery29/38a49f40.gif?v=e0827b7e" height=300>
+  <img src="https://pixelsafari.neocities.org/dividers/blood.gif" height=300>
   </b></p>
   
- "Hope you rest nice...\
- Eternally, sleep tight."
+ "Shivering and shaking as I\
+ melt into the floorboards as you speak."
 <p></b>
 <img align="center"
-src="https://file.garden/adJ3ti2aS3ylDI79/frostkissesbanner.gif" height=100>
+src="https://64.media.tumblr.com/0d630539451c089e02cd560050e8b941/927e67e3f23f4963-35/s250x400/fb070edef8cc837ac4984273a60a030d5297d128.pnj" height=200>
 
 </p>
 
-Blake or Loomis. 20, he/him genderfluid. DID system\
-Usually sitting wherever my love is... Feel free to\
-c+h if I'm alone though...
+Steven or Gold. 20, he/him genderfluid. DID system + BPD\
+My disorders heavily play a role in the way I act\
+Please c+h I'm so lonely
 
   
 [rentry](https://rentry.co/lxxmiszptinfo) - [carrd](https://lxxmisz.carrd.co/) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmiszcomms.carrd.co/)
 
-<img src="https://pixelsafari.neocities.org/dividers/character/pokemon4.png" height=300>
+<img src="https://pixelsafari.neocities.org/dividers/character/pokemon1.png" height=300>
 </div>
 </td>
 </tr>
