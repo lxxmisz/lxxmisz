@@ -8,8 +8,8 @@
   <img src="https://pixelsafari.neocities.org/dividers/blood.gif" height=300>
   </b></p>
   
- "Shivering and shaking as I\
- melt into the floorboards as you speak."
+ "Let's die together,\
+ I'm not joking."
 <p></b>
 <img align="center"
 src="https://64.media.tumblr.com/0d630539451c089e02cd560050e8b941/927e67e3f23f4963-35/s250x400/fb070edef8cc837ac4984273a60a030d5297d128.pnj" height=200>
@@ -21,8 +21,8 @@ My disorders heavily play a role in the way I act\
 Please c+h I'm so lonely
 
   
-[rentry](https://rentry.co/lxxmiszptinfo) - [carrd](https://lxxmisz.carrd.co/) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmiszcomms.carrd.co/)
-
+[rentry](https://rentry.co/lxxmiszptinfo) - [carrd](https://lxxmisz.carrd.co/) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmiszcomms.carrd.co/)\
+(I'll swap the rentry for fluffle soon)\
 <img src="https://pixelsafari.neocities.org/dividers/character/pokemon1.png" height=300>
 </div>
 </td>
