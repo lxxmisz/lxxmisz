@@ -21,7 +21,7 @@ My disorders heavily play a role in the way I act\
 Please c+h I'm so lonely
 
   
-[rentry](https://rentry.co/lxxmiszptinfo) - [carrd](https://lxxmisz.carrd.co/) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmiszcomms.carrd.co/)\
+[rentry](https://rentry.co/lxxmiszptinfo) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmisz.carrd.co/)\
 (I'll swap the rentry for fluffle soon)\
 <img src="https://pixelsafari.neocities.org/dividers/character/pokemon1.png" height=300>
 </div>
