@@ -8,8 +8,8 @@
   <img src="https://file.garden/adJ3ti2aS3ylDI79/pillsblue.png" height=300>
   </b></p>
   
- "Let's die together,\
- I'm not joking."
+ "Blood on my shirt,\
+ holding my heart, still beating."
 <p></b>
 <img align="center"
 src="https://file.garden/adJ3ti2aS3ylDI79/toolkit.png" height=200>
