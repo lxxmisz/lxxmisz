@@ -18,7 +18,7 @@ src="https://file.garden/adJ3ti2aS3ylDI79/toolkit.png" height=200>
 
 Tool or Gold. 20, he/him genderfluid. DID system + BPD\
 My disorders heavily play a role in the way I act.\
-Do C+H, don't be scared.
+Healing him since 13.06. Do C+H, don't be scared.
 
   
 [rentry](https://rentry.co/lxxmiszptinfo) - [atabook](https://lxxmisz.atabook.org/) - [art commissions](https://lxxmisz.carrd.co/)\
